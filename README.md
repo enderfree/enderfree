@@ -1,2 +1,2 @@
 Hello, 
-I'm enderfree. I'm a student in computer science, more precisely: in a few months I will be a certified programmer-analyst! I finally made something of my github account, right now it is only school projects and my Dungeon and Dragons management stuff. I hope you like it! 
+I'm enderfree. I am currently under the FDM group training and I look forward to work with you. I hava an AEC in lasalle college programer-analyst program and I am a very logical guy. Other than that, I pretty much check all cases of the nerd stereotype: I play DnD, I am a gamer, I read a lot, I like animes and now I am a programer...
